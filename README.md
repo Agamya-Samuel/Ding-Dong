@@ -1,12 +1,8 @@
-## If Error Showed
+## Follow me for latest updates 
 
-Just Download This Whole repository And make new repo in your GitHub account and upload all the files
+Soon More coming 🤟😎
 
 
-### WARN
+### Enjoy!!
 
-THIS IS ONLY FOR EDUCATIONAL PURPOSES
-
-DON'T USE FOR MINING OR ILLEGAL USE
-
-DON'T RECODE THIS SC!
+Abhi toh Party Shuru hui he 🤟😎!
